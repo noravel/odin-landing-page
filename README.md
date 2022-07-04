@@ -10,3 +10,5 @@ Credit:
 https://www.cbr.com/heaven-officials-blessing-netflix-you-should-watch
 
 https://heaven-officials-blessing.fandom.com/wiki/Donghua
+
+https://twitter.com/lividbruise/status/1304818208285757440
